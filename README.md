@@ -3,4 +3,4 @@
 
 `-` Fork atarakta destek olabilirsiniz. 
 
-`-` Discord sunucumuzada katılabilirsiniz [Valdora](https://discord.gg/24a8tvcAYU)
+`-` Discord sunucumuzada katılabilirsiniz [Laving Priw](https://discord.gg/kxD4yT3RWj)
